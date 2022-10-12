@@ -18,7 +18,7 @@ I hope you like it and enjoy the vibe as you achieve the success you deserve.
 </br>
 
 :airplane: Link: </br>
-https://dropemag.github.io/glowingDolphin/
+https://dropemag.github.io/lofiClock/
 
 </br>
 
